@@ -1,4 +1,4 @@
-# Pruthviraj Prakash — Portfolio
+# Pruthviraj Prakash Portfolio
 
 **[View the site →](https://pruthviraj32.github.io)**
 
